@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there 
+My name is Jennifer Ayissi 👋
 
 ## - 🔭 I’m currently working on ...
 ## - 🌱 I’m currently learning ...
