@@ -1,4 +1,4 @@
 ### Hi there 
-### My name is Jennifer Ayissi 👋
+### My name is Jennifer 👋
 
 
